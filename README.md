@@ -1,3 +1,3 @@
-- 👋 Oi, eu sou Mariluce Pereira De Jesus
+- 👋 Oi, eu sou Mariluce Pereira de Jesus
 - 👀 Tenho interesse em concentrar meus projetos em um local onde eu e demais pessoas possam consultar
 - 💻 Atualmente estou cursando Engenharia Elétrica na Escola Poltécnica da USP
